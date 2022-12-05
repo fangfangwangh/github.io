@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Environmental, social and governance (ESG) factors are poised to shape the financial investor industry for years to come. 
 
-Maybe say a some things about yourself.
+There is growing evidence that when investors embed ESG considerations into their strategies, they achieve superior valuations and a host of positive outcomes. 
 
-Or maybe what you plan to blog about.
+As employees, consumers, and communities raise their voices in support of ESG initiatives, companies that lead on these issues will achieve clear differentiation. 
